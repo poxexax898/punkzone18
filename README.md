@@ -1,0 +1,6 @@
+- i'm silvan
+- he/him prns
+- attempting to make discord apps
+- learning python + js
+- no collabs (?)
+- @punkzone18 on everything
